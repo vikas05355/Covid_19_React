@@ -29,4 +29,4 @@ Minor project: Completed
 Vikas- Software Developer Engineer
 <br/>
 <br/>
-vikaskumar05355@gmai.com
+vikaskumar05355@gmail.com
